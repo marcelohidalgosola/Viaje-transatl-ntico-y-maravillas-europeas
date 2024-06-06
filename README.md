@@ -1,1 +1,3 @@
 # Viaje-transatl-ntico-y-maravillas-europeas
+De Miami a París sin problemas, la disponibilidad de múltiples vuelos hizo que nuestros planes de viaje fueran perfectos. Reservamos una serie de vuelos desde Santo Domingo a Caracas, luego a Miami y finalmente a París. Anticipándonos al largo viaje, planeamos paradas de descanso en Miami para recargar energías antes de continuar. Nuestro regreso fue más desalentador, con una caminata a través de Caracas desde el aeropuerto internacional hasta el nacional en medio del calor, cargando el peso de nuestra aventura y equipaje.
+https://marcelohidalgosola.com.ar/viaje-por-europa/viaje-transatlantico-y-aventuras-europeas/
